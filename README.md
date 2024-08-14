@@ -7,4 +7,8 @@ estou estudando na [Alura](https://www.alura.com.br/)
 
 - sou uma pessoa que não fala muito
 
-- tenho muita paciência 
+- tenho muita paciência
+
+- gosto de ficar em casa
+
+- quero ser biólogo 
