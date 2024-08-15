@@ -13,6 +13,11 @@ estou estudando na [Alura](https://www.alura.com.br/)
 
 - gosto de ficar em casa
 
+
+- tenho 2 cahorros
+
+![](https://media.tenor.com/g9WRGLK3JSwAAAAM/dog-happy-dog.gif) 
+
 - gosto de jogar basquete
 
 ![](https://media.tenor.com/NgkZhSPZFggAAAAM/basketball-juke.gif)
