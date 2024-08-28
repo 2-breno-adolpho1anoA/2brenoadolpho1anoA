@@ -1,4 +1,4 @@
-bom dia, seja muito bem-vindo  [purple_heart]
+bom dia, seja muito bem-vindo
 
 **Breno Rafael**,
 estou estudando na [Alura](https://www.alura.com.br/)
